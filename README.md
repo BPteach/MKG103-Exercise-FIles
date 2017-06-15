@@ -1,0 +1,1 @@
+本仓库半撇私塾x一块听听「突破新媒体运营窘境的6大法则」的直播课程，点击[了解课程信息](https://live.tinfinite.com/live-detail.html?liveshowId=5931218c8f82a918ab876601)。
